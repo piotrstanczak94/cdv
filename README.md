@@ -1,1 +1,1 @@
-All of things what I do in school
+All things what I make in school
